@@ -19,6 +19,8 @@ p1_4
 
 ![p1_4](https://user-images.githubusercontent.com/110708716/185965815-554cd310-5c05-4e4e-af1c-9616a2452227.png)
 
+![p1_4b](https://user-images.githubusercontent.com/110708716/185970053-31900dcd-f6cc-4b9d-b957-d44eca07ce70.png)
+
 p1_5
 
 ![p1_5b](https://user-images.githubusercontent.com/110708716/185966007-9e6e46c4-2449-41bc-8f2a-709bb0788809.png)
